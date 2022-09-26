@@ -1,1 +1,1 @@
-salam
+salam alikoum every one
